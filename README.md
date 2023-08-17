@@ -11,4 +11,5 @@ I am an aspiring software developer with a strong passion for human-centered des
 - In my free time, you will often find me reading, listening to podcasts, or trying my hand at new baking recipes! 🍞
 
 Let's connect! 📫
+
 LinkedIn: www.linkedin.com/in/kristen-balisi
